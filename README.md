@@ -48,4 +48,4 @@
 ---
 
 - **📫 Contact me in :**
-![Discord](https://discord.c99.nl/widget/theme-1/596227913209217024.png)
+![Discord](https://discord.c99.nl/widget/theme-3/698384711634124801.png)
